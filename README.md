@@ -6,5 +6,5 @@ I have 9 years of experience working as a software engineer in several projects 
 I do have more than 6 years of experience working with agile development methodologies like SCRUM for several project's execution. Recently I have finished soft skills courses in the Platzi educational platform, so I can be able to provide as a team leader a proper and effective feedback to the team.
 
 You can follow me in the next sites/platforms where I constantly publish new content 😊
-- 🐦[Twitter](https://www.twitter.com/vidamrr "Twitter profile")
+- 🐦[Twitter](https://www.twitter.com/ProfeGlip "Twitter profile")
 - 💼 My personal [Linkedin](https://www.linkedin.com/in/bamarin/)
